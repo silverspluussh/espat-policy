@@ -35,3 +35,6 @@ This Privacy Policy is effective as of 01-08-2022 and will remain in effect exce
 We reserve the right to update or change our Privacy Policy at any time and you should check this Privacy Policy periodically. If we make any material changes to this Privacy Policy,we will notify you either through the email address you have provided us, or by placing a prominent notice on our app.
 
 ## Contact Information
+Email: datasusgh@gmail.com
+Contact: 0557466718
+LinkedIn: datasusgh
